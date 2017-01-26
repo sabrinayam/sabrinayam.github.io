@@ -1,2 +1,0 @@
-# sabrinayam.github.io
-hi
